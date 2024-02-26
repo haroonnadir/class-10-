@@ -2,4 +2,5 @@ I am a positive, enthusiastic and competent Web Developer who, over the years, h
 class 10
 ok
 by
-thankyou form sir adeel haroon
+thankyou form sir adeel
+my sun haroon adeel such a nice person
